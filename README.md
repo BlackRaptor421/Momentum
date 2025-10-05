@@ -1,2 +1,2 @@
 Momentum 36/
-u
+t
