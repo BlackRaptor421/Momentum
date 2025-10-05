@@ -1,2 +1,2 @@
-uuuuuuuuhiuiuuuuuuuujiuuuuuiuuuuuuuuu# Momentum 36/
+ Momentum 36/
 u
